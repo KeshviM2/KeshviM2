@@ -14,7 +14,7 @@ Here are some ideas to get you started:
     - [Instagram](https://www.instagram.com/keshvi_mishra)
     - [LinkedIn](https://www.linkedin.com/in/keshvi)
     - [Twitter](https://twitter.com/Keshvimishra)
-    - [Email](mailto:keshmish07@gmail.com?subject=Hello%20Found%20you%20on%20GitHub%20Let's%20catch%20up)
+    - [Email](mailto:keshmish07@gmail.com?subject=Hello,%20Found%20you%20on%20GitHub%20Let's%20catch%20up)
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: I am stupid! ✨✨
 
