@@ -15,7 +15,6 @@ Here are some ideas to get you started:
     - [LinkedIn](https://www.linkedin.com/in/keshvi)
     - [Twitter](https://twitter.com/Keshvimishra)
     - [Email](mailto:keshmish07@gmail.com?subject=Hello,%20Found%20you%20on%20GitHub%20Let's%20catch%20up)
-    - [Discord](https://discord.com/@Ritvi#2646)
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: I am stupid! ✨✨
 
