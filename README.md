@@ -13,7 +13,7 @@ Here are some ideas to get you started:
 - 📫 How to reach me: 
     - [Instagram](https://www.instagram.com/keshvi_mishra)
     - [LinkedIn](https://www.linkedin.com/in/keshvi)
-    - [Twitter](https://twitter.com/Keshvi62040826)
+    - [Twitter](https://twitter.com/Keshvimishra)
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: I am stupid! ✨✨
 
