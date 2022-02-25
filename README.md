@@ -14,7 +14,7 @@ Here are some ideas to get you started:
     - [Instagram](https://www.instagram.com/keshvi_mishra)
     - [LinkedIn](https://www.linkedin.com/in/keshvi)
     - [Twitter](https://twitter.com/Keshvimishra)
-    - [Email](mailto:keshmish07@gmail.com?subject=[Found you on GitHub, let's catch up]%20Source%20Han%20Sans)
+    - [Email](mailto:keshmish07@gmail.com subject=[Found you on GitHub, let's catch up]%20Source%20Han%20Sans)
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: I am stupid! ✨✨
 
