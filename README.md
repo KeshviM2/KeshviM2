@@ -3,7 +3,7 @@
 
 <!-- **KeshviM2/KeshviM2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.-->
 
-Here are some ideas to get you started:
+Welcome to my page:
 
 - 🔭 I’m currently working on building my Frontend Skills!
 - 🌱 I’m currently learning HTML and CSS
